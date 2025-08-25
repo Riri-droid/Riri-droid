@@ -1,2 +1,2 @@
-[![kurukuru](https://github.com/Riri-droid/kurukuru-spinner/blob/main/assests/dan-heng-dan-heng-hsr.gif?raw=true)](https://github.com/Riri-droid/assests/issues/1#issue-3351700522)
+![kurukuru](https://github.com/user-attachments/assets/eefe470d-906f-4d0c-857f-38301d586e9d)
 
